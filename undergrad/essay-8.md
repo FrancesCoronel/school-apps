@@ -1,0 +1,13 @@
+# Essay 8
+
+I thank the many academic challenges I have faced. If I failed to have as many as I have had, I would end up being one of the many graduate students sobbing to their career counselors over their first B grade and why they have yet to conjure up a job so they can pay off their student debt. Pure nonsense! The real academic challenge I have faced then is the challenge of appreciating a system where I will have to pay so much money for something that should be granted to all without cost.
+
+Students today, and I witness this first hand, have become so entirely focused on those numbers. The numbers that define their ranking, test scores, and grade point average are what matter more than the actual learning. Sure these numbers, if high enough, are to get them to that lovely institution of higher education, but at what price? Student debt is higher than ever and people with degrees still lack jobs. Every individual has different goals and different ways to attain those goals. Yet, society has forced this notion that a Bachelor's degree is simply essential to every work force that is worth having. I don't feel that's healthy mentally, economically, or academically for anyone. Different people need to work in different areas. The faster society realizes that and succeeds in not demeaning one' status for their chosen career path, the more everyone can benefit from a wide range of interests.
+
+Why is it that education has become more expensive yet diminished in practical utility in terms of career development? Why is it that unless you go to an elite college, you are getting as much bang for your buck (the buck is much higher though) whereas if you go to a mediocre college you are getting much much less bang for your buck? Why is it some people who ought to go study something can't, just because of their financial background? There is no reason why this all has to happen, but society has become so rigid even when examples of successful “uneducated” people are all around us.
+
+It seems that if you can't even achieve a BA, you're just a second tier citizen. Yet, if you do achieve a BA, you are most likely many thousands of dollars in debt.
+
+My academic challenge applies to everyone because everyone has to deal with the tangible benefits they may or may not receive from college and how they will have to pay for them.
+
+I have overcome this warped ideal, nevertheless, by convincing myself that I can and will find an institution where I can learn what I need to without completely depleting myself later financially. We all have an opportunity to truly immerse ourselves in learning without this huge price tag, and that's what I intend to do.
