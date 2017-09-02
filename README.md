@@ -43,7 +43,7 @@ You'll notice that I basically used the same base template for all of them with 
 
 Get inspired! 🎉
 
-Personally, I still think both undergrad and grad school were completely unnecessary routes for me to take but I didn't want to regret it later so hey - c'est la vie! ¯\_(ツ)_/¯
+Personally, I still think both undergrad and grad school were completely unnecessary routes for me to take but I didn't want to regret it later so hey - c'est la vie! `¯\_(ツ)_/¯`
 
 ## Credits
 
